@@ -1,5 +1,7 @@
 ﻿<div align="center">
-  <h1>🚀 TNTCloud 新手使用指南：基于 Clash Verge (v2.7.4) 的全流程路书</h1>
+  <h1>🚀 TNTCloud 新手使用指南：
+  
+  基于 Clash Verge 的全流程路书</h1>
   <p>欢迎找到TNTCloud 的世界！🎉</p>
   <p>
     <img src="image/pic.webp" alt="TNTCloud 页面示意图" width="100%" />
