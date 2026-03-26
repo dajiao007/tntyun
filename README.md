@@ -2,7 +2,6 @@
 
 **官方直达入口：** [https://tntyun.cc/\#/register?code=CZVdpQnI](https://tntyun.cc/#/register?code=CZVdpQnI)
 
-\!(https://go.dealmoon.com/exec/j?url=https%3A%2F%2Fwww.awin1.com%2Fcread.php%3Fawinaffid%3D155506%26amp%3Bawinmid%3D11018%26amp%3Bclickref%3Dno\_refer%26amp%3Bp%3Dhttps%253A%252F%252Fwww.viator.com%252Ftours%252FColorado-Springs%252FColorado-Springs-Sunrise-Balloon-Ride%252Fd22201-34641P1\&d=1502217)
 
 欢迎找到 **TNTCloud**！这是一份专门为新手准备的“保姆级”说明书。
 
